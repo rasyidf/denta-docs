@@ -1,0 +1,2 @@
+## Studi Literatur
+Dalam melakukan penelitian ilmiah harus dilakukan teknik penyusunan yang sistematis untuk memudahkan langkah-langkah yang akan diambil. Begitu pula yang dilakukan penulis dalam  penelitian  ini,  langkah  pertama  yaitu dengan  melakukan  studi  literatur  pada  buku-buku  yang  membahas  tentang Theory of Constraints, jurnal, dan  penelitian  yang  telah  dilakukan  yang berkaitan  dengan TOC Data  yang  didapat  dari  studi  literatur  ini  akan digunakan sebagai acuan penelitian.
